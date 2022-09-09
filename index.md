@@ -8,6 +8,27 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/EDuvO_Qpk2s) line!
 <hr>
+<p class="codepen" data-height="300" data-default-tab="html,result" data-slug-hash="gOepBVQ" data-user="thakarashard" style="height: 300px; box-sizing: border-box; display: flex; align-items: center; justify-content: center; border: 2px solid; margin: 1em 0; padding: 1em;">
+  <span>See the Pen <a href="https://codepen.io/thakarashard/pen/gOepBVQ">
+  Captioned video as feature Element</a> by ThakaRashard (<a href="https://codepen.io/thakarashard">@thakarashard</a>)
+  on <a href="https://codepen.io">CodePen</a>.</span>
+</p>
+<script async src="https://cpwebassets.codepen.io/assets/embed/ei.js"></script>
+<hr>
+<div class='twoPanelSpread'>
+  <div class='row'>
+    <div class='panelColumn'>
+      <div class='leftColumn'>
+        <img src="https://www.graffiti.org/sfb/refa2002oakland04.jpg" alt="##BUBBLEGUM_POP##IS_HERE_TO_STAY" >
+      </div>
+    </div>
+    <div class='panelColumn'>
+      <div class='rightColumn'>
+        <img src="https://www.graffiti.org/sfb/refa2002oakland04.jpg" alt="Girl in a jacket" >
+      </div>
+    </div>
+  </div>
+</div>
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/880789270&color=%23c6692c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 20px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; "><a href="https://soundcloud.com/janineofficial" title="Janine" target="_blank" style="color: #cccccc; text-decoration: none;">Quzube, I love you, StayStrong</a> · <a href="https://soundcloud.com/janineofficial/best-thing" title="Best Thing" target="_blank" style="color: #cccccc; text-decoration: none;"></a></div><hr>
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/255826099&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/djshadow" title="DJ Shadow" target="_blank" style="color: #cccccc; text-decoration: none;">DJ Shadow</a> · <a href="https://soundcloud.com/djshadow/building-steam-with-a-grain-3" title="Building Steam With A Grain Of Salt (Alternate Take Without Overdubs)" target="_blank" style="color: #cccccc; text-decoration: none;">Building Steam With A Grain Of Salt (Alternate Take Without Overdubs)</a></div>
 
