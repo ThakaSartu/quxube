@@ -6,8 +6,10 @@
 {% endhighlight %}
 
 ## Hole To Another Universe
-One day my blog will `RETURN true` when run from the [command](https://youtu.be/EDuvO_Qpk2s) line!
+One day my blog will `RETURN true` when run from the [command](https://starguardian.riotgames.com/en-us/timeline/) line!
 <hr>
+
+[Top 10 Mistakes in Web Design](https://www.nngroup.com/articles/top-10-mistakes-web-design/)
 <a href="https://www.youtube.com/watch?v=F3Qljls-FkI"><IMG src="https://stanforddaily.com/wp-content/uploads/2018/10/9482bb028aa9aba7fcb78ab86ef429bf.jpeg"></a>
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5J20VvoZSXa8g0xfJ43q66?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 ## ቢጫ
