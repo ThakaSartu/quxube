@@ -46,8 +46,9 @@ One day my blog will `RETURN true` when run from the [command](https://starguard
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/1mXMkMg5LJGMVOAyM6euB6?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 <hr>
 
-[Bravestarr | 1 Hour Compilation | English Full Episode | HD | Videos For Kids](https://www.youtube.com/watch?v=odSo7WJOiE8)
-<iframe width="100%" height="480" src="https://www.youtube.com/embed/EGknDT7llL4" title="The Return of Anubis | Space Sentinels | Full Episode | Retro Bites" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+[Bravestarr...ANiMATED_SHOW](https://www.youtube.com/watch?v=odSo7WJOiE8)
+
+<iframe width="100%" height="480" src="https://www.youtube.com/embed/EGknDT7llL4" title="The Return of Anubis | Space Sentinels"  frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
 [The 3 Levels of Emotional Processing](https://www.nngroup.com/videos/3-levels-emotional-processing/)
