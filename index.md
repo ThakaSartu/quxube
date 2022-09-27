@@ -7,8 +7,103 @@
 
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://starguardian.riotgames.com/en-us/timeline/) line!
+<hr>
 
 
+
+# Dear_Quxube
+Ive had new leads to fixing this familial sex slavery thing that has me out in the street and most of the females in porn regardless of age. Remember Matt Field wanted to be Graffiti_KiNG_ATL and what ever he was looking for I was more qualified and he started cyberbullying Muna and then kidnapped Erika after sabotaging Sartu which led to her getting kidnapped in her own house after Munas "Funeral_at_WAGES" So those things disabled me financially. I saw Coral on TikTok! She is made up to look like a "Dance411_SLUT" its so disgraceful how they dress her its super tacky like Sartu in hollywood with gold chains and shit! And the hair is like someone from Deep atlanta is involved in her haircare. It took me so long to leanr the basic hoodRat_pony_tail which for her was a cottony ball of poof on her head. And... Well its obvious someone from Georgia/FLorida that is around our age is doing her hair and doing syles they asociate with youth but its our youth. Coral look bad on tiktok. And shes only 10. Her stomach hasa blubber ripple and shes only 10! I wanna talk to Mashonga... Check out this old post from [Sartu_and_I's BubbleGumPop Project](https://thakasartu.github.io/bubblegumpop/) after this War excerpt from wikipedia... Long story short Dance411 was kidnapped and sold into prostitution as an act of war to destablaize the image of a safe place for africans, asians, and eastern Europeans... We had about 15years of prosperity and then all our wives started acting bizarre. Im glad you still with me. I get it now, seal this, 4 where the mind goes, ye ass will follow
+
+# Economic War
+
+![Kuwaiti oil wells on fire, during the Gulf War, 1 March 1991
+See also: Resource war](https://upload.wikimedia.org/wikipedia/commons/thumb/6/61/Disabled_Iraqi_T-54A%2C_T-55%2C_Type_59_or_Type_69_tank_and_burning_Kuwaiti_oil_field.jpg/640px-Disabled_Iraqi_T-54A%2C_T-55%2C_Type_59_or_Type_69_tank_and_burning_Kuwaiti_oil_field.jpg)
+
+> War can be seen as a growth of economic competition in a competitive international system. In this view wars begin as a pursuit of markets for natural resources and for wealth. War has also been linked to economic development by economic historians and development economists studying state-building and fiscal capacity.[99] While this theory has been applied to many conflicts, such counter arguments become less valid as the increasing mobility of capital and information level the distributions of wealth worldwide, or when considering that it is relative, not absolute, wealth differences that may fuel wars. There are those on the extreme right of the political spectrum who provide support, fascists in particular, by asserting a natural right of a strong nation to whatever the weak cannot hold by force.[100][101] Some centrist, capitalist, world leaders, including Presidents of the United States and U.S. Generals, expressed support for an economic view of war.
+
+# Marxist
+Main article: Marxist explanations of warfare
+> The Marxist theory of war is quasi-economic in that it states all modern wars are caused by competition for resources and markets between great (imperialist) powers, claiming these wars are a natural result of capitalism. Marxist economists Karl Kautsky, Rosa Luxemburg, Rudolf Hilferding and Vladimir Lenin theorized that imperialism was the result of capitalist countries needing new markets. Expansion of the means of production is only possible if there is a corresponding growth in consumer demand. Since the workers in a capitalist economy would be unable to fill the demand, producers must expand into non-capitalist markets to find consumers for their goods, hence driving imperialism.[102]
+<hr>
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/1431345049&color=%237c2434&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 20px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; "><a href="https://soundcloud.com/itsellamai" title="Ella Mai" target="_blank" style="color: #cccccc; text-decoration: none;">Ella Mai NewALBUM</a> · <a href="https://soundcloud.com/itsellamai/sets/heart-on-my-sleeve-442684884" title="Heart On My Sleeve" target="_blank" style="color: #cccccc; text-decoration: none;">Heart On My Sleeve</a></div>
+<hr>
+
+#### OLD_CONTENT
+
+
+<h2>I need to get my daughter out of a molesters hands (・о・) </h2>
+<h2 class="neonText"> Its been 757 days since I have seen our daughter CORAL_IRIS_KELLY. </h2> 
+Her mother mother Erika Renee Kelly was kidnapped on Feb 2,2020. A local Atlanta Matt Field bragged about it on Facebook stating "I_SOLD_HER. I found her near Venice beach California and my tattooist Kennie_Davis of Jolly_Roger_Tattoo in _Stockbridge#Georgia was not too far from the scene. Erika and I were not estranged when she disappeared as 
+[ESSENCE_MAGAZiNE_STATED](https://www.essence.com/news/erika-kelly-missing-atlanta-georgia/) we were coparenting. I was laid off from my IT job at [Ionic Security](https://www.linkedin.com/company/ionic-security) after my work was repeatedly sabotaged by my manager. I opened a case with Fulton_County_Family_Services two months before our eviction from our East_Atlanta_Home_at_631_Moreland_Ave_in_Atlanta_Georgia they failed to process us after repeated visits and calls. I took odd jobs and even scored a mural gig with 
+[Mercedes_BenZ_Stadium](https://mercedesbenzstadium.com/) for the 
+[Atlanta_Falcons](https://www.atlantafalcons.com/). They paid me $1500 for a 40ft graffiti mural on red canvas for former athlete Deion_Sanders. I was severely underpaid but it covered the rent for one more month. I moved in with Constancia and her daughter Akeeva, got Coral in school at 
+[Chapel Hill Elementary](https://www.chapelhilles.dekalb.k12.ga.us/) and worked hard to get a new 9-5. Constancia did not like me or Coral living with her and Akeeva so they undercut me with accusations of erratic behavior and started thier own dfacs case accusing me of schizophrenia. I had no income and was repeatedly denied foodstamps and welfare by a woman named DANIELLE_MASHONGA_and_her_colleageMANESSA_WARNER... Coral would ask
+
+<h2> Where_is_mommy?!?</h2>
+
+I told her that Matt stole and raped her and she needs our help, so we have to keep looking. Constancia and Akeeva constantly defended Matt. He is a known pedophile and child and adult rapist in the Atlanta art community. I did not know this. We shopped at the same record store and he often offered me work. I loath rapist. I loath pedophilia. Once I learned of his ways I distanced myself. So Erikas_mother_and_sisters_DEFENDING_HIM, struck me as bizarre. "Its_just_a_white_boy_jokeHe_didnt_sell_her". 
+[DFACS](https://dfcs.georgia.gov/) stalked me on Facebook and indirectly accused me of CHILD_MOLESTATION for a video where we were playing with a wand style muscle massager, it was innocent. They 
+[forcibly removed Coral](https://www.youtube.com/watch?v=AmYdIZhahrQ) saying that I was saying 
+["inappropriate things"](https://www.youtube.com/watch?v=9sCE3HhjSbY) and violating her by saying that her mom had been raped and kidnapped. I learned that telling Coral the ugly truth was the best way to keep a solid trust filled relationship with her. In the DFACS meeting, puzzled I told Mashonga the truth, I cant find work, my reputation was being sabotaged and I could not even get a job at Kroger the local grocery store. I told Mashonga I needed money for food, Constancia would not feed niether me or Coral. I asked Mashonga in 
+[This_Family_Meeting](https://www.youtube.com/watch?v=Q8NXhT6_Tx8) if she cared about me dying on the street and she shook her head, no. I was never interviewed with Coral at all, I never got a psych eval until I got to a UCLA_Recoup_Center_in_PalmDale_California. In early October I saw Coral, in Pasadena, California, with a grown man wearing fishnet stockings... Shes 9. I was shot with a poison dart one day later, my skateboard stolen and my foot began to swell larger that a shoe could fit... I was rushed to the emergency room and UCLA Cut_my_foot_to_the_bone_to_drain_the_infection... I cant run as well any more and am now handicapped 
+
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/Q8NXhT6_Tx8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="100%" height="400" src="https://www.youtube.com/embed/9sCE3HhjSbY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="100%" height="400" src="https://www.youtube.com/embed/AmYdIZhahrQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<h2>Her_Former_Life_With_Me</h2>
+
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/-oZuyrU764s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/CsM4jNSAm4A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/ydGxlS8l7Y0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<span class="neonText">
+
+## Dear Danielle_MAshonga, DFACS, DPSS
+##	WHERE_IS_CORAL?!?!?
+  </span>	
+
+<img src="https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/img-0281-1513267146.jpeg?crop=1xw:1xh;center,top&resize=768:*">	
+<code>THANK_YOU_COSMOPOLiTAN for this article that highlights this device as one used in sports medicine</code>
+Sex educator and artist Betty Dodson had been teaching her famous Bodysex workshops in New York City since the late 60s. These women-only workshops focused on teaching women how to masturbate. Dodson was a pioneer and advocate for the use of vibrators, ever since her lover in the late 1960s introduced her to an electric vibrator originally used for scalp massages. While Dodson <a href="http://www.dodsonandross.com/blogs/betty-dodson/2010/06/having-sex-machines-return-electric-vibrator" href="http://www.dodsonandross.com/blogs/betty-dodson/2010/06/having-sex-machines-return-electric-vibrator" target="_blank" data-vars-ga-outbound-link="http://www.dodsonandross.com/blogs/betty-dodson/2010/06/having-sex-machines-return-electric-vibrator">originally</a> While Dodson is widely credited with popularizing the Magic Wand, she received no compensation for her endorsement of the toy. Dodson added, "it's really shitty of [Hitachi] to not acknowledge my efforts and give me a percentage." || WRiTTEN_BY :: CARiNA_HSiEH 
+	<a href="https://twitter.com/carinahsieh"> Carina's TWiTTER</a>
+	<a href="https://www.linkedin.com/in/carina-hsieh-a8802458"> CARiNA_HSiEH's LiNKEDiN</a>
+	<h3>THAKAS_THOUGHTS</h3>
+	<a href="https://www.linkedin.com/in/danielle-mushonga-msw-26262132">DANiELLE_MUSHONGA's LiNKEDiN_PROFiLE (KiDNAPPiNG_SPECiALiST) </a>
+	
+
+<iframe width="500" height="315" src="https://www.youtube.com/embed/UmGMZLs5NCw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+	
+![NELLY_FOLKLORE](http://1.bp.blogspot.com/_UXXtJmb1kNs/Swsc7CGXUDI/AAAAAAAAEfw/e8t3BTnTl_M/s1600/FolkloreCassetteIndonesia2003.jpg)
+
+<a href="https://www.youtube.com/watch?v=Hj2mA1ZNPFA">Luther Vandross, Gregory Hines - There's Nothing Better Than Love</a> <a href="https://www.youtube.com/watch?v=m3-hY-hlhBg">Whitney Houston - How Will I Know (Official Video)</a> 
+<a href="https://www.youtube.com/watch?v=hmHWiUv4wyM">Yolanda Adams - I'm Gonna Be Ready
+</a> 
+<a href="https://www.youtube.com/watch?v=Ptiz0KtR16E">Monica - Before You Walk Out Of My Life (Official HD Video)</a> 
+<a href="https://www.youtube.com/watch?v=wa3tfVjGCQ8">Whitney Houston - Where Do Broken Hearts Go (Official Video)</a> 
+<a href="https://www.youtube.com/watch?v=5ixh1csw2Mk">Count On Me (from "Waiting to Exhale" - Original Soundtrack)</a> 
+<a href="https://www.youtube.com/watch?v=RSP-9SebVpY"> Tamia - Stranger in My House</a> 
+<a href="https://www.youtube.com/watch?v=Xkj1An6Wnec"> Brandy - Have You Ever (Official Video) </a> 
+<a href="https://www.youtube.com/watch?v=lSd1ll37xQU">Missing You - Brandy, Tamia, Gladys Knight and Chaka Khan [Set It Off Soundtrack] (Official Video)</a> 
+<a href="https://www.youtube.com/watch?v=H947PtHmh0Y">Deborah Cox - Nobody's Supposed To Be Here (Official Video)</a> 
+<a href="https://www.youtube.com/watch?v=Y36aBTuRr1o">Gladys Knight & The Pips - Save the Overtime (For Me)</a> 
+<a href="https://www.youtube.com/watch?v=XYclWyC4qQo">Tom Browne - Funkin' for Jamaica</a> 
+<a href="https://www.youtube.com/watch?v=pNj9bXKGOiI">Luther Vandross - Never Too Much (Official HD Video)</a> 
+<a href="https://www.youtube.com/watch?v=XYclWyC4qQo">Tom Browne - Funkin' for Jamaica</a>
+<a href="https://www.youtube.com/watch?v=Hj2mA1ZNPFA">Luther Vandross, Gregory Hines - There's Nothing Better Than Love</a>
+<span class="neonText">
+አዳምም አለ። ይህች አጥንት ከአጥንቴ ናት፥ ሥጋም ከሥጋዬ ናት፤ እርስዋ ከወንድ ተገኝታለችና ሴት ትባል።</span>
+<img src="https://images.squarespace-cdn.com/content/v1/58c35a0e579fb3281396b7f0/1536723653240-5XGYW66WX97I4YODRJPE/silver+embrace+FB_FB2048.jpg?format=750w">
+<p><a href="https://www.brightfunds.org/funds/diversity-in-tech"> Dear Diversity in Tech</a> I am currently serving as a federal volunteer to get my family out of sex trafficking and I am robbed of opportunities to use the internet. The library system in Los Angeles has been very unsupportive, hovever Long Beach has givin me tools to maintain my webpresence here on ##GiTHUB but I am restricted to time limits and hand out computers with custom excluded search results. The social media companies locked me out so the could help the prostitution community molest my family. The prostitution community of Los Angeles is verified telepathic, and if you are a family member of a kidnapped sex slave used on <a href="https://exoduscry.com/watch/#traffickinghub-video"> ThePornoWeb</a> the mob steals your electronics and bans you from the library in little ways, like I got put out for "body odor" by a guy who purchased my wife at a brothel in ##LiTTLE_TOKYO... They call it blackballing, its highly illegal</p>
+
+<a href="https://www.w3.org/Style/LieBos3e/em.en.html"> How To Style Text Elements with Font, Size, and Color in CSS </a>
+<a href="https://www.w3.org/Style/LieBos3e/em.en.html">The amazing em unit and other best practices </a>
+<a href="https://clagnut.com/blog/348/"> How to size text using ems </a>
+<span class="neonText">አዳምም አለ። ይህች አጥንት ከአጥንቴ ናት፥ ሥጋም ከሥጋዬ ናት፤ እርስዋ ከወንድ ተገኝታለችና ሴት ትባል።</span>
+
+<hr>
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/lqgQMvDw-K8" title="Waka TM: New Eritrean comedy 2022 (Gual Hadera) #Semhar Mesfn ጓል ሓደራ #ሰምሃር መስፍን" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 # [የምስጢረ ስላሴ እና የሰው ተፈጥሮ ትምህርት እና የተሃድሶ (በግ ለምድ) ዘመቻ በመምህር ዶ/ር ዘበነ ለማ (Memher Dr Zebene Lemma)](https://www.youtube.com/watch?v=9OWX9q-YJMY)
