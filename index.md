@@ -11,7 +11,10 @@
 One day my blog will `RETURN true` when run from the [command](https://starguardian.riotgames.com/en-us/timeline/) line!
 <hr>
 
-
+### hey babe, you ever experiance ~>
+# Virtual mobbing
+ takes place when a number of individuals use social media or messaging to make comments to or about another individual, usually because they are opposed to that person's opinions. The volume of messages may amount to a campaign of harassment.
+[Cyber-Mobbing: A New Form of Cyberbullying Affecting Teens](https://www.stompoutbullying.org/blog/cyber-mobbing)
 
 # Dear_Quxube
 Ive had new leads to fixing this familial sex slavery thing that has me out in the street and most of the females in porn regardless of age. Remember Matt Field wanted to be Graffiti_KiNG_ATL and what ever he was looking for I was more qualified and he started cyberbullying Muna and then kidnapped Erika after sabotaging Sartu which led to her getting kidnapped in her own house after Munas "Funeral_at_WAGES" So those things disabled me financially. I saw Coral on TikTok! She is made up to look like a "Dance411_SLUT" its so disgraceful how they dress her its super tacky like Sartu in hollywood with gold chains and shit! And the hair is like someone from Deep atlanta is involved in her haircare. It took me so long to leanr the basic hoodRat_pony_tail which for her was a cottony ball of poof on her head. And... Well its obvious someone from Georgia/FLorida that is around our age is doing her hair and doing syles they asociate with youth but its our youth. Coral look bad on tiktok. And shes only 10. Her stomach hasa blubber ripple and shes only 10! I wanna talk to Mashonga... Check out this old post from [Sartu_and_I's BubbleGumPop Project](https://thakasartu.github.io/bubblegumpop/) after this War excerpt from wikipedia... Long story short Dance411 was kidnapped and sold into prostitution as an act of war to destablaize the image of a safe place for africans, asians, and eastern Europeans... We had about 15years of prosperity and then all our wives started acting bizarre. Im glad you still with me. I get it now, seal this, 4 where the mind goes, ye ass will follow
