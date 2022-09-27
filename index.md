@@ -5,6 +5,8 @@
 4 # UNiVERSE####################################CORaL#####
 {% endhighlight %}
 
+<IMG src="https://64.media.tumblr.com/8256f1b82e93066a8a244ee162b063ea/e4a2c136ea1e15ee-46/s500x750/82bfb97c5be49183043078de0c2582d0990927da.gifv">
+
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://starguardian.riotgames.com/en-us/timeline/) line!
 <hr>
@@ -96,7 +98,8 @@ Sex educator and artist Betty Dodson had been teaching her famous Bodysex worksh
 <span class="neonText">
 አዳምም አለ። ይህች አጥንት ከአጥንቴ ናት፥ ሥጋም ከሥጋዬ ናት፤ እርስዋ ከወንድ ተገኝታለችና ሴት ትባል።</span>
 <img src="https://images.squarespace-cdn.com/content/v1/58c35a0e579fb3281396b7f0/1536723653240-5XGYW66WX97I4YODRJPE/silver+embrace+FB_FB2048.jpg?format=750w">
-<p><a href="https://www.brightfunds.org/funds/diversity-in-tech"> Dear Diversity in Tech</a> I am currently serving as a federal volunteer to get my family out of sex trafficking and I am robbed of opportunities to use the internet. The library system in Los Angeles has been very unsupportive, hovever Long Beach has givin me tools to maintain my webpresence here on ##GiTHUB but I am restricted to time limits and hand out computers with custom excluded search results. The social media companies locked me out so the could help the prostitution community molest my family. The prostitution community of Los Angeles is verified telepathic, and if you are a family member of a kidnapped sex slave used on <a href="https://exoduscry.com/watch/#traffickinghub-video"> ThePornoWeb</a> the mob steals your electronics and bans you from the library in little ways, like I got put out for "body odor" by a guy who purchased my wife at a brothel in ##LiTTLE_TOKYO... They call it blackballing, its highly illegal</p>
+<p><a href="https://www.brightfunds.org/funds/diversity-in-tech"> Dear Diversity in Tech</a> I am currently serving as a federal volunteer to get my family out of sex trafficking and I am robbed of opportunities to use the internet. The library system in Los Angeles has been very unsupportive, hovever Long Beach has givin me tools to maintain my webpresence here on ##GiTHUB but I am restricted to time limits and hand out computers with custom excluded search results. The social media companies locked me out so the could help the prostitution community molest my family. The prostitution community of Los Angeles is verified telepathic, and if you are a family member of a kidnapped sex slave used on <a href="https://exoduscry.com/watch/#traffickinghub-video"> ThePornoWeb</a> the mob steals your electronics and bans you from the library in little ways, like I got put out for "body odor" by a guy who purchased my wife at a brothel in ##LiTTLE_TOKYO... They call it blackballing, its highly illegal
+</p>
 
 <a href="https://www.w3.org/Style/LieBos3e/em.en.html"> How To Style Text Elements with Font, Size, and Color in CSS </a>
 <a href="https://www.w3.org/Style/LieBos3e/em.en.html">The amazing em unit and other best practices </a>
