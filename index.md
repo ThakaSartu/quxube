@@ -6,7 +6,73 @@
 {% endhighlight %}
 <hr>
 
+[![.github/workflows/ci.yaml](https://github.com/pages-themes/hacker/actions/workflows/ci.yaml/badge.svg)](https://github.com/pages-themes/hacker/actions/workflows/ci.yaml) 
+[![Gem Version](https://badge.fury.io/rb/jekyll-theme-hacker.svg)](https://badge.fury.io/rb/jekyll-theme-hacker)
+
+<hr>
 <iframe src="https://archive.org/embed/modelgraphixspecialeditiongundamwarsiiigundamsentinelthebattleofrealgundam1989edition" width="100%" height="400" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+<hr>
+<IMG src="https://raw.githubusercontent.com/ThakaSartu/erika/master/assets/images/game_graphics/msh.png">
+<IMG src="https://raw.githubusercontent.com/ThakaSartu/erika/master/assets/images/game_graphics/msh2.png">
+<IMG src="https://raw.githubusercontent.com/ThakaSartu/erika/master/assets/images/game_graphics/msh 1trice">
+<iframe src="https://archive.org/embed/arcade_msh" width="100%" height="500" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+# Marvel Super Heroes (Euro 951024)
+by **Capcom**
+
+| Year        | Title ::          | Maker |
+|:-------------|:------------------|:------|
+| 1995          | Marvel Super Heroes (Euro 951024) | Capcom (1995) |
+| 1995          | Marvel Super Heroes (Euro 951024) | Capcom (1995) |
+| 1995          | Marvel Super Heroes (Euro 951024) | Capcom (1995) |
+| 1995          | Marvel Super Heroes (Euro 951024) | Capcom (1995) |
+
+Publication date 1995
+### Marvel Super Heroes (Euro 951024) by Capcom (1995)
+
+<hr>
+# Quick guide on how to play on the Internet Arcade
+November 6, 2014  Posted by Bill Loguidice  How to, News  27 Comments Noticing a pattern of particularly high (and completely justified) interest over the past several days after several friends and family commented on and forwarded me links to the newly unveiled Internet Arcade, I thought it might be useful to create a quick blog post about my experiences getting this wonderful service running. While Jason Scott himself posted just about all the details you could possibly want, I thought I would summarize things a bit for quicker setup and also to provide additional detail in a couple of key spots.
+
+On its home at Archive.org, the Internet Arcade is described as “a web-based library of arcade (coin-operated) video games from the 1970s through to the 1990s, emulated in JSMAME , part of the JSMESS software package. Containing hundreds of games ranging through many different genres and styles, the Arcade provides research, comparison, and entertainment in the realm of the Video Game Arcade.” While other sites like Jackpot Charm have accomplished similar feats for a variety of platforms (in fact, I used to provide regular blog post lists of such sites), and even Archive.org itself provides access to many of them, the combination of functionality, accessibility, and the types of games these are make this specific implementation stand out, as found on new-casino.ca and other new online casinos. In short, this is a major milestone that makes these historically important arcade games available to just about the widest possible audience.
+
+# Getting Started
+Here’s a summary of what you should have in place before you get started:
+
+[First] A Windows-, MacOS-, or Linux-based computer that can run one of the browsers in the bullet that follows. While I’ve been successful in getting a game to show on an Android-based smartphone running Chrome, you may have trouble getting the virtual keyboard to appear to get things going and actually play.
+
+It looks like steps might be taken to better support mobile devices, but for now, I’d say stick to a traditional computer. As for something like a Chromebook, I’ll assume that that will work unless I hear otherwise, though I doubt it will be able to have gamepad support.
+
+[Second] Only the latest versions of Chrome and Firefox provide full functionality, so avoid browsers like Internet Explorer and Safari for now.
+
+Firefox is specifically recommended by Scott over Chrome due to its greater speed running the Internet Arcade implementation, though I’ve noticed little difference when testing on my desktop computer. Waterfox (more or less a 64-bit implementation of Firefox) is also claimed to provide similarly fast and full functionality like Firefox, but in my testing it didn’t detect my gamepad.
+
+[Optional] Though optional, a standard gamepad of some type that you already know works well on your computer is usually a lot better than playing from the keyboard. With that said, several classic arcade games have very simple controls, so a keyboard would work just fine in those cases.
+
+In terms of gamepads, I’ve personally tried and have gotten to work Microsoft Xbox 360, Microsoft Xbox One, and Sony PlayStation 4 controllers. I picked those for no other reason than that’s what I typically use on my PCs and the fact that they were handy...[READ_THE_FULL_INSTRUCTIONSET_BY_CLICKING_HERE](https://armchairarcade.com/perspectives/2014/11/06/quick-guide-on-how-to-play-on-the-internet-arcade/)
+<hr>
+# Quran: 4. Surat An-Nisa (The Women)
+# وَكَيْفَ تَأْخُذُونَهُۥ وَقَدْ أَفْضَىٰ بَعْضُكُمْ إِلَىٰ بَعْضٍۢ وَأَخَذْنَ مِنكُم مِّيثَـٰقًا غَلِيظًۭا
+
+And how could you take it back after having enjoyed each other intimately and she has taken from you a firm commitment?1 
+
+وَمَن لَّمْ يَسْتَطِعْ مِنكُمْ طَوْلًا أَن يَنكِحَ ٱلْمُحْصَنَـٰتِ ٱلْمُؤْمِنَـٰتِ فَمِن مَّا مَلَكَتْ أَيْمَـٰنُكُم مِّن فَتَيَـٰتِكُمُ ٱلْمُؤْمِنَـٰتِ ۚ وَٱللَّهُ أَعْلَمُ بِإِيمَـٰنِكُم ۚ بَعْضُكُم مِّنۢ بَعْضٍۢ ۚ فَٱنكِحُوهُنَّ بِإِذْنِ أَهْلِهِنَّ وَءَاتُوهُنَّ أُجُورَهُنَّ بِٱلْمَعْرُوفِ مُحْصَنَـٰتٍ غَيْرَ مُسَـٰفِحَـٰتٍۢ وَلَا مُتَّخِذَٰتِ أَخْدَانٍۢ ۚ فَإِذَآ أُحْصِنَّ فَإِنْ أَتَيْنَ بِفَـٰحِشَةٍۢ فَعَلَيْهِنَّ نِصْفُ مَا عَلَى ٱلْمُحْصَنَـٰتِ مِنَ ٱلْعَذَابِ ۚ ذَٰلِكَ لِمَنْ خَشِىَ ٱلْعَنَتَ مِنكُمْ ۚ وَأَن تَصْبِرُوا۟ خَيْرٌۭ لَّكُمْ ۗ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ ٢٥
+
+Do not marry former wives of your fathers—except what was done previously. It was indeed a shameful, despicable, and evil practice.
+
+˹Also˺ forbidden to you for marriage are your mothers, your daughters, your sisters, your paternal and maternal aunts, your brother’s daughters, your sister’s daughters, your foster-mothers, your foster-sisters, your mothers-in-law, your stepdaughters under your guardianship if you have consummated marriage with their mothers—but if you have not, then you can marry them—nor the wives of your own sons, nor two sisters together at the same time—except what was done previously. Surely Allah is All-Forgiving, Most Merciful.
+
+Also ˹forbidden are˺ married women—except ˹female˺ captives in your possession.1 This is Allah’s commandment to you. Lawful to you are all beyond these—as long as you seek them with your wealth in a legal marriage, not in fornication. Give those you have consummated marriage with their due dowries. It is permissible to be mutually gracious regarding the set dowry. Surely Allah is All-Knowing, All-Wise.
+## get the passage below translated
+# YOU_WERE_RiGHT
+### i_submit
+# But_I_WOULD_LIKE_SOME_NEW_ViDEOGAMES 
+
+وَإِنْ أَرَدتُّمُ ٱسْتِبْدَالَ زَوْجٍۢ مَّكَانَ زَوْجٍۢ وَءَاتَيْتُمْ إِحْدَىٰهُنَّ قِنطَارًۭا فَلَا تَأْخُذُوا۟ مِنْهُ شَيْـًٔا ۚ أَتَأْخُذُونَهُۥ بُهْتَـٰنًۭا
+
+
+
 
 <hr>
 <IMG src="https://64.media.tumblr.com/8256f1b82e93066a8a244ee162b063ea/e4a2c136ea1e15ee-46/s500x750/82bfb97c5be49183043078de0c2582d0990927da.gifv">
