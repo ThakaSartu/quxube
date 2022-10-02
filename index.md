@@ -14,7 +14,9 @@
 <hr>
 <IMG src="https://raw.githubusercontent.com/ThakaSartu/erika/master/assets/images/game_graphics/msh.png">
 <IMG src="https://raw.githubusercontent.com/ThakaSartu/erika/master/assets/images/game_graphics/msh2.png">
-<IMG src="https://raw.githubusercontent.com/ThakaSartu/erika/master/assets/images/game_graphics/msh 1trice">
+<IMG src="https://raw.githubusercontent.com/ThakaSartu/erika/master/assets/images/game_graphics/msh%201trice.png">
+
+# #PLAY :: MARVEL_SUPER_HEROES :: NOW# 
 <iframe src="https://archive.org/embed/arcade_msh" width="100%" height="500" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 
 
