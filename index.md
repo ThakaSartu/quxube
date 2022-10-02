@@ -1,8 +1,8 @@
  {% highlight ruby %}
 1 # HOLE_TO_ANOTHER_UNiVERSE##############################
-2 # TO####################################################
-3 # ANOTHER###############################################
-4 # UNiVERSE####################################CORaL#####
+2 # TO#####################################################
+3 # ANOTHER#################################################
+4 # UNiVERSE####################################QUXUBE#######
 {% endhighlight %}
 <hr>
 
@@ -32,6 +32,7 @@ Publication date 1995
 ### Marvel Super Heroes (Euro 951024) by Capcom (1995)
 
 <hr>
+
 # Quick guide on how to play on the Internet Arcade
 November 6, 2014  Posted by Bill Loguidice  How to, News  27 Comments Noticing a pattern of particularly high (and completely justified) interest over the past several days after several friends and family commented on and forwarded me links to the newly unveiled Internet Arcade, I thought it might be useful to create a quick blog post about my experiences getting this wonderful service running. While Jason Scott himself posted just about all the details you could possibly want, I thought I would summarize things a bit for quicker setup and also to provide additional detail in a couple of key spots.
 
@@ -40,18 +41,19 @@ On its home at Archive.org, the Internet Arcade is described as “a web-based l
 # Getting Started
 Here’s a summary of what you should have in place before you get started:
 
-[First] A Windows-, MacOS-, or Linux-based computer that can run one of the browsers in the bullet that follows. While I’ve been successful in getting a game to show on an Android-based smartphone running Chrome, you may have trouble getting the virtual keyboard to appear to get things going and actually play.
+* [First] A Windows-, MacOS-, or Linux-based computer that can run one of the browsers in the bullet that follows. While I’ve been successful in getting a game to show on an Android-based smartphone running Chrome, you may have trouble getting the virtual keyboard to appear to get things going and actually play.
 
-It looks like steps might be taken to better support mobile devices, but for now, I’d say stick to a traditional computer. As for something like a Chromebook, I’ll assume that that will work unless I hear otherwise, though I doubt it will be able to have gamepad support.
+> It looks like steps might be taken to better support mobile devices, but for now, I’d say stick to a traditional computer. As for something like a Chromebook, I’ll assume that that will work unless I hear otherwise, though I doubt it will be able to have gamepad support.
 
-[Second] Only the latest versions of Chrome and Firefox provide full functionality, so avoid browsers like Internet Explorer and Safari for now.
+* [Second] Only the latest versions of Chrome and Firefox provide full functionality, so avoid browsers like Internet Explorer and Safari for now.
 
-Firefox is specifically recommended by Scott over Chrome due to its greater speed running the Internet Arcade implementation, though I’ve noticed little difference when testing on my desktop computer. Waterfox (more or less a 64-bit implementation of Firefox) is also claimed to provide similarly fast and full functionality like Firefox, but in my testing it didn’t detect my gamepad.
+> Firefox is specifically recommended by Scott over Chrome due to its greater speed running the Internet Arcade implementation, though I’ve noticed little difference when testing on my desktop computer. Waterfox (more or less a 64-bit implementation of Firefox) is also claimed to provide similarly fast and full functionality like Firefox, but in my testing it didn’t detect my gamepad.
 
-[Optional] Though optional, a standard gamepad of some type that you already know works well on your computer is usually a lot better than playing from the keyboard. With that said, several classic arcade games have very simple controls, so a keyboard would work just fine in those cases.
+* [Optional] Though optional, a standard gamepad of some type that you already know works well on your computer is usually a lot better than playing from the keyboard. With that said, several classic arcade games have very simple controls, so a keyboard would work just fine in those cases.
 
-In terms of gamepads, I’ve personally tried and have gotten to work Microsoft Xbox 360, Microsoft Xbox One, and Sony PlayStation 4 controllers. I picked those for no other reason than that’s what I typically use on my PCs and the fact that they were handy...[READ_THE_FULL_INSTRUCTIONSET_BY_CLICKING_HERE](https://armchairarcade.com/perspectives/2014/11/06/quick-guide-on-how-to-play-on-the-internet-arcade/)
+> In terms of gamepads, I’ve personally tried and have gotten to work Microsoft Xbox 360, Microsoft Xbox One, and Sony PlayStation 4 controllers. I picked those for no other reason than that’s what I typically use on my PCs and the fact that they were handy...[READ_THE_FULL_INSTRUCTIONSET_BY_CLICKING_HERE](https://armchairarcade.com/perspectives/2014/11/06/quick-guide-on-how-to-play-on-the-internet-arcade/)
 <hr>
+
 # Quran: 4. Surat An-Nisa (The Women)
 # وَكَيْفَ تَأْخُذُونَهُۥ وَقَدْ أَفْضَىٰ بَعْضُكُمْ إِلَىٰ بَعْضٍۢ وَأَخَذْنَ مِنكُم مِّيثَـٰقًا غَلِيظًۭا
 
